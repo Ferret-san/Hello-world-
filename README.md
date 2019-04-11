@@ -1,2 +1,3 @@
 # Hello-world-
-Diego here, I'm looking to learn about coding as much as possible.
+Hope you can find what you are looking for!
+Feel free to take a look at my work and project!
